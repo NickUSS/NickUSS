@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @NickUSS
 - 👀 I’m interested in Zelicraft
-- 📫 Discord @emojiado#7699
+- 📫 Discord @emojiad2
